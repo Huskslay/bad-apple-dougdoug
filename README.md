@@ -4,7 +4,7 @@
 
 Website - https://ufo50.dougdoug.com
 
-My Videoo - www.youtube.com/watch?v=YTi0iczWKok
+My Video - www.youtube.com/watch?v=YTi0iczWKok
 
 DougDoug Video - https://www.youtube.com/watch?v=IBb1bOYk_nQ
 
